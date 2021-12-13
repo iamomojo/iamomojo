@@ -3,7 +3,7 @@ Hi there 👋
 
 Have you ever met a daytime Supply Chain specialist and late-night Data Analyst?
 
-Well, that's me! I have always been fascinated by data and visualization for as long as forever. From my first job as Data Entry Officer to my current position as Advisor, I find analyzing data to be second nature to me. Having used Excel for quite sometime, i decided to move on up to R, SQL & Python this year. Yaay for me!😄.
+Well, that's me! I have always been fascinated by data and visualization for as long as forever. From my first job as Data Entry Operator to my current position as Advisor, I find analyzing data to be second nature to me. Having used Excel for quite sometime, i decided to move on up to R, SQL & Python this year. Yaay for me!😄.
 
 As you can guess, I am super stoked and looking forward to taking on a full time Analytics role.
 
