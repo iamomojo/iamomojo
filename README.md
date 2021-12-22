@@ -6,7 +6,7 @@ Well, that's me! I have always been fascinated by data and visualization for as 
     
 <img align="left" src="https://user-images.githubusercontent.com/42611207/147034404-d4e7eff5-8873-4d7e-8f76-6401f4ae8c54.png" alt="My Image">        
 
-Covid changed the world and so did I by upskilling. Did I mention that I applied myself to learning **Anaplan** (*a cloud-based business-planning software that provides data for decision-making)? 2021 was a year of all things DATA. I am an **Anaplan certified Model Builder (Level 2)** Woot woot!. 
+Covid changed the world and so did I by upskilling. Did I mention that I applied myself to learning **Anaplan** (a cloud-based business-planning software that provides data for decision-making). 2021 was a year of all things DATA. I am an **Anaplan certified Model Builder (Level 2)** Woot woot!. 
   
     
   
