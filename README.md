@@ -18,13 +18,13 @@ Covid changed the world and so did I by upskilling. Did I mention that I applied
          
 Outside of work, you can tell I love reading, I also love arranging spaces 🌱.    
 
-Want to know more about me 📫, feel free to connect with me via     
-  
-    
-    
-    
+Want to know more about me 📫, feel free to connect with me via       
+   
+   
+     
+     
+       
 Twitter: https://twitter.com/@iamomojo  
-  
 Linkedin: https://www.linkedin.com/in/iamomojo/  
 
 
